@@ -1,7 +1,7 @@
 
 Hello Family –
 
-This is a long email, but you don't have to read it all. Here is the punchline:
+This is a long email, but here is the punchline:
 
 **I will make my whole genome public soon. If you have serious concerns, please call me immediately. This isn’t meant to be alarming, I just want to make sure you are all aware. I've talked endlessly about the possibility of this moment for years, so I think you're mostly prepped and maybe even ready to move on to new topics. hehehe**
 
